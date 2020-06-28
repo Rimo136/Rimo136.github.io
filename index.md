@@ -7,3 +7,4 @@ Ritter Balduin befindet sich im Jahr 1399 auf Schloss Burgeck und versucht, dort
 * Ist verwirrt
 Hui Buh said:
 > Ich bin das rasselnde Schlossgespenst
+<img src="http://hoerspiel-box.de/hoerspiel-archiv/images/huibuh_16_rdk.jpg"/>
