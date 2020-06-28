@@ -5,3 +5,5 @@ Ritter Balduin befindet sich im Jahr 1399 auf Schloss Burgeck und versucht, dort
 * Unsichtbar
 * Hat Eisenkette
 * Ist verwirrt
+Hui Buh said:
+> Ich bin das rasselnde Schlossgespenst
